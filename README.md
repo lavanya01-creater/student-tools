@@ -22,5 +22,9 @@ free list of tools and tips to learn english and study smarter
 ## public speaking 
 - Ted-talk on youtube
 - podcast by Raj shamani,ranveer
+## 🎧 Free Listening Practice
+
+- [TED-Ed](https://ed.ted.com) – Short educational videos with clear English
+- [ESLPod](https://eslpod.com) – Podcasts made for English learners
 ---
 ⭐ If this helped you, give it a star!
