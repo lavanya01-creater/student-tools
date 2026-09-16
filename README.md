@@ -19,6 +19,8 @@ free list of tools and tips to learn english and study smarter
 - Study in short 25-minute sessions with 5-minute breaks (Pomodoro method)
 - Watch English videos with subtitles — turn them off once it gets easier
 - Practice speaking out loud daily, even alone
-
+## public speaking 
+- Ted-talk on youtube
+- podcast by Raj shamani,ranveer
 ---
 ⭐ If this helped you, give it a star!
